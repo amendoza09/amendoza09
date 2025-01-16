@@ -1,2 +1,2 @@
-Currently a 4th year student at the University of Georgia majoring in computer science
+University of Georgia graduate with B.S in Computer Science
 - Email: mendoza.a01@outlook.com
